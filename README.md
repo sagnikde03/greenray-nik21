@@ -22,9 +22,9 @@ I am open to research projects and other kind of opportunities in Vision. Click 
 Our team [qualified](https://github.com/sarobml2000/sarobml2000/blob/main/University_of_Calcutta_Sarosij%20Bose_EcoGeeks_Mumbai.pdf) for the Hult prize 2021 Mumbai regionals where we spoke about our startup 'EcoGeeks'. Also have a look at our College's CodeChef Chapter's [Linkedln Page](https://www.linkedin.com/company/cu-codeclub/) where I am a part of the Executive team to promote awareness about coding in our campus. 
 
 ### Reach me:-
-Through my [Linkedln Profile](https://www.linkedin.com/in/sarosijbose/) or mail me at [sarosijbose2000[at]gmail[dot]com](mailto:sarosijbose2000-remove-if-human@gmail.com).
+Through my [Linkedln Profile](www.linkedin.com/in/sagnik-cu-a85127224) or mail me at [sagnikde2003[at]gmail[dot]com](mailto:sagnikde2003@gmail.com).
 
-![visitors](https://visitor-badge.laobi.icu/badge?page_id=sarosijbose.sarosijbose)
+![visitors](https://visitor-badge.laobi.icu/badge?page_id=sagnikde03.sagnikde03)
 
 
 
